@@ -1,4 +1,4 @@
-# 
+# professional Logic Pro for macOS Preset | voice-enhancement + keyframe-animation offers the most advanced Logic Pro for macOS preset, with voice-enhancement and
 
 
 
